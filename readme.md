@@ -1,5 +1,5 @@
 # Bauer Agustin
-![F](https://i.pinimg.com/564x/57/dc/04/57dc04728abc23d6c22f936181c9c33c.jpg "Agustin Bauer")
+![IMG-20200310-WA0053](https://user-images.githubusercontent.com/80929538/111888710-c614ac80-89bd-11eb-9463-b9d133e36492.jpg "Agustin Bauer riendose en París")
 ## Legajo: 11731
  ### Sobre mi:
 #### 1. Me encanta el deporte
