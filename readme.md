@@ -1,5 +1,5 @@
-![F](https://i.pinimg.com/564x/57/dc/04/57dc04728abc23d6c22f936181c9c33c.jpg "Agustin Bauer")
 # Bauer Agustin
+![F](https://i.pinimg.com/564x/57/dc/04/57dc04728abc23d6c22f936181c9c33c.jpg "Agustin Bauer")
 ## Legajo: 11731
  ### Sobre mi:
 #### 1. Me encanta el deporte
