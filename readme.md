@@ -7,6 +7,9 @@
 - Correr
 - Gimnasio
 - Ciclismo
+- Tenis
+- Basketball
+- Natación
 #### 2. Disfruto la [música](https://www.youtube.com/watch?v=wbZZy9yogg8)
 - Electrónica
 - Reggaeton
